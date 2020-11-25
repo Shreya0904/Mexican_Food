@@ -1,0 +1,1 @@
+First, you make the kidney beans. Once you make the kidney beans you spread the beans on a hard or soft taco. Then, when you put the beans, and cheese on you put you're hard or soft taco it in the oven. After a minute, take it out and put some salsa, and vegetables (Lettuce, and Pepper). Sour Cream, and Jalapenos are optional. Finally, ENJOY!!
